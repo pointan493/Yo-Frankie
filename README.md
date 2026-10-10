@@ -217,4 +217,4 @@ Yo Frankie! is offered as a full free version, meaning you have access to all fe
 Don't miss out on the fun! Download Yo Frankie! today and start your adventure with Frankie the squirrel!
 
 ---
-**Last updated:** 2026-10-10 00:24:04 UTC
+**Last updated:** 2026-10-10 06:34:21 UTC
